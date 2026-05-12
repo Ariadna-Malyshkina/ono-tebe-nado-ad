@@ -1,1 +1,0 @@
-https://github.com/Ariadna-Malyshkina/ono-tebe-nado-ad
